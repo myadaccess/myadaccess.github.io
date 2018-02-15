@@ -1,1 +1,0 @@
-# myadaccess.github.io
